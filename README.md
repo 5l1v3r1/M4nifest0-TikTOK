@@ -43,7 +43,7 @@ Just run and enjoy
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://youtu.be/OEMPvqwlmI0  🎥
+- 🔞 See Training 🎥 https://youtu.be/yGlkzXxvdkE 🎥
 
 ----------------------
 
