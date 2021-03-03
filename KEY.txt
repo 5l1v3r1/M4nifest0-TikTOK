@@ -2,7 +2,7 @@
 # -*- coding: utf-8 -*-
 # 📌️ M4nifest0 Black Hat Hacking Team™💪
 # 📌️ 𝕿𝖍𝖎𝖘 𝕴𝖘 𝕿𝖍𝖊 𝓜4𝓷𝓲𝓯𝓮𝓼𝓽0 𝕿𝖊𝖆𝖒™
-# 📌️ Author hack4lx 👊 | erfan4lx 👊
+# 📌️ Author hack4lx 👊 
 # 📌 💪 Site : https://m4nifest0.com 👊
 # 📌 💪 Channel Telegram : https://t.me/M4nifest0 👊
 # 📌 2020 💪
